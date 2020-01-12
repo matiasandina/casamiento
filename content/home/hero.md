@@ -45,3 +45,5 @@ hero_media = "CasamientoPaul.jpg"
 ## **Casamiento Mel y Mati**
 
 Los invitamos a nuestro casamiento en la Quinta El Reencuentro.
+
+Sábado 9 de mayo. 12:00 a 20:00 hs.

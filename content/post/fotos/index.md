@@ -37,7 +37,7 @@ Tenemos algunas fotos lindas, nos gustaría tener más!
 
 ## Compartí las fotos que saques
 
-Creamos una carpeta en [Google Drive] para que puedan subir las fotos de nuestro casamiento.
+Creamos una carpeta en [Google Fotos](https://photos.app.goo.gl/J5D2nQHxSHqkmhGa9) para que puedan subir las fotos de nuestro casamiento.
 
 
-[<img src="https://seeklogo.net/wp-content/uploads/2014/11/Google-Drive-logo-vector.png">](http://google.com.au/)
+[<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Google-Photos-icon-logo.png/1190px-Google-Photos-icon-logo.png">](https://photos.app.goo.gl/J5D2nQHxSHqkmhGa9)

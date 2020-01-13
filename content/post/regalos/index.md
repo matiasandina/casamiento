@@ -34,4 +34,4 @@ No es necesario que nos regales nada! El mejor regalo es tu presencia en nuestro
 
 ***
 
-Si no logramos convencerte y querés regalarnos algo igual, se nos complica llevarnos objetos. Mandanos un mail a matiasandina@gmail.com con asunto `Regalo Casamiento` y te pasamos los datos de una cuenta.
+Si no logramos convencerte y querés regalarnos algo igual, se nos complica llevarnos objetos. Mandanos un mail a matiasandina@gmail.com o a melaniebasnak@gmail.com con asunto `Regalo Casamiento` y te pasamos los datos de una cuenta.
